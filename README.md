@@ -1,0 +1,2 @@
+# duki-
+El duko pa
